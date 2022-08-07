@@ -1,2 +1,2 @@
 # Classic-Roblox-Map-Pack
-DM me on discord if you have any more maps you would like to publish, my discord is kparserYT#0419
+DM me on discord if you have any maps you would like to publish, my discord is kparserYT#0419
